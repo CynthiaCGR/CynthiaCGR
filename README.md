@@ -10,7 +10,7 @@ I am a Business Analytics & Information Systems major with a concentration in Cy
 -Programming
 -Custom PC Building
 
-##Education
+## Education
 University of South Florida (2025-Ongoing)
 Bachelors of Science in Business Analytics & Information Systems with a Cybersecurity Concentration
 GPA: 3.89
