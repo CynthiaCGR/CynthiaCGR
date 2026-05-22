@@ -14,14 +14,14 @@ I am a Business Analytics & Information Systems student with a concentration in 
 - **University of South Florida** (2025-Ongoing)
 
   
-Bachelors of Science in Business Analytics & Information Systems with a Cybersecurity Concentration
+Bachelor of Science in Business Analytics & Information Systems with a Cybersecurity Concentration
 
 
 GPA: 3.89
 
 - **St. Petersburg College** (2023-2025)
   
-Assosiacte of Arts in Business Analytics & Information Systems
+Associate of Arts in Business Analytics & Information Systems
 
 
 GPA: 3.9
