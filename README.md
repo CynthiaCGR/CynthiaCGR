@@ -17,7 +17,7 @@ I am a Business Analytics & Information Systems student with a concentration in 
 Bachelor of Science in Business Analytics & Information Systems with a Cybersecurity Concentration
 
 
-GPA: 3.89
+GPA: 3.9
 
 - **St. Petersburg College** (2023-2025)
   
